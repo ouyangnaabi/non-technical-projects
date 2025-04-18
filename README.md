@@ -37,7 +37,7 @@ Skills demonstrated include:
 
 ### 3. Social Media Partnerships & Content Strategy
 
-- Managed social media accounts for **Visit Estonia** (Douyin, Weibo, WeChat)
+- Managed social media accounts for **Visit Estonia** (TikTok, Weibo, WeChat)
 - Produced branded content for **Visit Dubai**, **Visit Singapore**, and **Turkish Airlines** on **Zaker**
 - Cumulative exposure exceeded **9.5 million views** in China through strategic media partnerships
 
